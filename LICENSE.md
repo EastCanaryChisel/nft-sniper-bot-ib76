@@ -1,4 +1,4 @@
-# 
+# Get the ultimate nft sniper bot with premium nft sniper bot | auto-buy + gas-fee-estimation. Featuring auto-buy and gas-fee-estimation, it's the best choice for automated NFT
 
 
 
